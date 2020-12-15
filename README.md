@@ -9,7 +9,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for **trainee role / intern / job opportunities for long term relationship**
 - 💬 Ask me about **Flutter**,**Tech**, **What are you learning currently** ,**astrology**
 - 📫 How to reach me: **suryadevsingh24032000@gmail.com**
-- 😄 NickName: **Chiki**
 - ⚡ Fun fact: **coffee**
 
 
